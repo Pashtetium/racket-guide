@@ -64,7 +64,7 @@
 ### Сборка народная, только по-быстрее пожалуйста
 Берем те же аналоги с ozon, wildberries
 
-#### Накладки Reactor Tornado V5 [ссылка](https://ozon.ru/t/P9MW8ny):
+#### Накладки Reactor Tornado V5 (тут одна, берем 2 шт) [ссылка](https://ozon.ru/t/P9MW8ny):
 ![image](https://github.com/user-attachments/assets/de3ef105-8068-4b49-b2f0-b673b28f88f0)
 
 #### Основание Huieson X-3 [ссылка](https://ozon.ru/t/KkGW4d7): 
